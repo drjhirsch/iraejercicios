@@ -1,8 +1,6 @@
 # Ejercicios para practicar el futuro cercano con ir a + infinitivo
 
 <a href="https://sh.edupool.de/search?func=playlist&standort=IQSH&list=3881">Video explicativo</a> sobre imperativo <br>
-<a href="https://hirsch.next-cloud.org/index.php/s/n3bfc5HfeopW9JT">Hoja explicativa </a> sobre el imperativo <br>
-
 
 Ejercicios para practicar el futuro cercano con ir a + infinitivo:
 <br>
